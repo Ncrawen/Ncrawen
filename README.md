@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Norbert Bercsenyi a.k.a. @Ncrawen
+- 👀 I’m interested in growing my Network and my Net worth.
+- 🌱 I’m currently learning Web3 / Programing / AI automatation
+- 💞️ I’m looking to collaborate on projects and expend my experience as an online marketing specialist.
+- 📫 How to reach me? Pop an email to norbertbn7@gmail.com or give me a text on Discord (Norbz#2112) and refer to #gothca ( •̀ ω •́ )✧
+- ✨ special enquires ✨ Magic trick can be requested! 🎩 (～￣▽￣)～ A smile is a curve that sets everything straight. — Phyllis Diller
